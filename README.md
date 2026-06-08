@@ -69,7 +69,7 @@ Hey, I’m Gaurav Sharma, a Data Analyst & Content Creator.
 I break down complex data topics into simple, practical content that actually helps you land a job.
 
 
-💼 LinkedIn: [Amlan Mohanty](https://www.linkedin.com/in/amlanmohanty1/)
+💼 LinkedIn: [Gaurav Sharma](www.linkedin.com/in/gaurav-sharma-081874320)
 - Let’s connect professionally and grow your data career
 
 
